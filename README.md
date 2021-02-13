@@ -1,0 +1,5 @@
+- Zero degrees, was in college studying Game Dev but dropped out after a month because it was moving at a very slow pace and i couldn't see myself sticking 3 years just to finally open up Unreal Engine.
+- Huge interest in building awesome software.
+- Love problem solving.
+- Irish, early 20's, male.
+- Have been told im highly self-aware, not sure if thats good or bad but sounds kinda good.
